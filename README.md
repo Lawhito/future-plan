@@ -1,2 +1,3 @@
-# future-plan
-rencana ke-depan saya :D
+### RENCANA YANG AKAN SAYA LAKUKAN SELANJUTNYA
+---
+> nnti kupikir-pikir dulu
